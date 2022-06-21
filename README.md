@@ -25,7 +25,6 @@
 ![1](/Moment/25.png)
 ![1](/Moment/26.png)
 ![1](/Moment/27.png)
-![1](/Moment/28.png)
 ![1](/Moment/29.png)
 ![1](/Moment/30.png)
 ![1](/Moment/31.png)
