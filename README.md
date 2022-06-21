@@ -14,7 +14,6 @@
 ![1](/Moment/14.png)
 ![1](/Moment/15.png)
 ![1](/Moment/16.png)
-![1](/Moment/17.png)
 ![1](/Moment/18.png)
 ![1](/Moment/19.png)
 ![1](/Moment/20.png)
